@@ -1,2 +1,3 @@
 # discord-what
-just some things i found, most likely useless but y'know, why not?
+just some things i found/find about discord overtime, most likely useless but y'know, why not?
+<hr>
